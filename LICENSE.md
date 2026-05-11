@@ -1,4 +1,4 @@
-#  
+#  professional Scripts for ultimate mining tycoon offers the most advanced ultimate mining tycoon Script, with one-hit kill and auto-upgrade. Perfect
 
 
 
